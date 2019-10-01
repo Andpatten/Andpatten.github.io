@@ -1,5 +1,3 @@
-# Andrew Patten
-
 ## Career Objectives
 
 ## Current Projects
